@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **paulalok86@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1jOSBnEMHAbW4bnaR-ftHfkcg0GnaC30f]
+- 📄 Know about my experiences https://drive.google.com/file/d/11N3nFVNKjB8qt3VzHbnzHAp8dTquavHh/view?usp=drive_link
 
 - ⚡ Fun fact **I like to watch thriller movies.**
 
